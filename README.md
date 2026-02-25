@@ -7,3 +7,14 @@
 
 ### CHICKEN BUTT
 
+*Yo*
+
+**Yoooooo**
+
+***YOOO***
+
+``  ඞ <-- among us
+``
+
+
+I am ~~Gabriel~~ Lexus
